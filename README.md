@@ -1,0 +1,2 @@
+# Scientist-Confirms-Turmeric-As-Effective-As-14-Drugs
+Science confirms Turmeric is one the most thoroughly researched plants in existence today. Its medicinal properties and components (primarily curcumin) have been the subject of over 5600 peer-reviewed and published biomedical studies. In fact, our five-year long research project on this sacred plant has revealed over 600 potential preventive and therapeutic applications, as well as 175 distinct beneficial physiological effects.
